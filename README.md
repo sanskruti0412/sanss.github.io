@@ -24,5 +24,5 @@ Q330
 Cinewhoop"3
 
 ## Contact
-Email: sanskrutijoshi@142@gmail.com  
+Email: sanskrutijoshi142@gmail.com  
 LinkedIn: your link-https://www.linkedin.com/in/sanskruti-hemant-j-3319a62aa?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app
